@@ -1,1 +1,1 @@
-# discos-duros-JmP
+# taller sobre los discos-duros-JmP.
